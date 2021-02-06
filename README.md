@@ -1,0 +1,2 @@
+# hubbm-bbm101-2021_makeup-assignment-b21228797
+2021 MAKE UP EXAM- SPANİSH TO TURKİSH- BBM 103
